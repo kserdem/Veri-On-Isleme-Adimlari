@@ -1,1 +1,1 @@
-# Veri-On-sleme-Ad-mlar-
+# Veri-On-isleme-Adimlari
